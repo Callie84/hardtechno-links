@@ -1,4 +1,4 @@
-﻿# Hardtechno / Schranz — Sets & Mixes (Master-Liste)
+# Hardtechno / Schranz — Sets & Mixes (Master-Liste)
 
 ## Waldhaus & Weichentechnikk (Beispiele)
 - https://soundcloud.com/stefanwietek/weichentechnikk-vs-waldhaus
@@ -19,4 +19,4 @@
 - https://www.techno-livesets.com/playlist/hard-techno/
 - https://archive.org/details/LIVESETS_Collection
 
-*Zuletzt aktualisiert:* 2025-10-24 04:42
+*Zuletzt aktualisiert:* 2025-10-24 07:16
