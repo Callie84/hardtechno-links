@@ -19,4 +19,4 @@
 - https://www.techno-livesets.com/playlist/hard-techno/
 - https://archive.org/details/LIVESETS_Collection
 
-*Zuletzt aktualisiert:* 2025-10-31 08:12
+*Zuletzt aktualisiert:* 2025-11-01 02:34
